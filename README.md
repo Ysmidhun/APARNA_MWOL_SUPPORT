@@ -46,4 +46,13 @@
 
 ### YOUNG STERS BLOOD BROTHER TEM OFC 💫🌸
 
+### _COME HERE AGAIN THANK YOU 🌸💞
+<div align="center">
+  <p align="center">
+
+   <img 
+src="https://i.imgur.com/wIEpDuo.gif" alt="GIF"/>
+</p>
+
+
 
