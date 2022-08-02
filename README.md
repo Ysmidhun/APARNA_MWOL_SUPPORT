@@ -51,8 +51,7 @@
   <p align="center">
 
    <img 
-src="https://i.imgur.com/wIEpDuo.gif" alt="GIF"/>
+src="https://tenor.com/view/gif-26368128.gif" alt="GIF"/>
 </p>
-
 
 
