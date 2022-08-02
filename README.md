@@ -18,11 +18,32 @@
 </a>
 </div>
 
-### Official Youtube Channel YSMIDHUN 💍💫
+### Official Youtube Channel YSMIDHUN 💍
+<a href="https://youtube.com/channel/UC0yNrBziB3u2hzvXzJ4NnTA"><img align="center" src="https://i.imgur.com/JTH08DP.jpeg" alt="Scan QR" height="100" width="250" /></a>
+<br>
+<div>
+<br>
 
-<div align="center">
-  <p align="center">
-<a href="https://youtube.com/channel/UC0yNrBziB3u2hzvXzJ4NnTA"><img src=https://i.imgur.com/ShINOtu.jpeg>
+### Official Youtube Channel Oggy & Aparna @Oggy modz 💫
+<a href="https://youtube.com/channel/UC1D6jQ-8pJd1PHCn8AIC_dA"><img align="center" src="https://i.imgur.com/JTH08DP.jpeg" alt="Scan QR" height="100" width="250" /></a>
+<br>
+<div>
+<br>
 
+### Join Now Aparna Mwol Whastapp Bot Support Group 💖🌸
+<a href="https://chat.whatsapp.com/EXjP8kGTPUQBv1LmJqSkGz"><img align="center" src="https://i.imgur.com/GwA3jes.jpeg" alt="Scan QR" height="100" width="250" /></a>
+<br>
+<div>
+<br>
+
+## APARANA MWOL FULL TEM 💞🧚‍♀️
+
+### YS MIDHUN - YOUNG STERS BLOOD BROTHERS
+
+### OGGY MODZ - YS KICHU SER
+
+### APARNA - CATY MODZ 🧚‍♀️
+
+### YOUNG STERS BLOOD BROTHER TEM OFC 💫🌸
 
 
